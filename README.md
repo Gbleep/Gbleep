@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Gbleep
+- 👋 Hi, I’m @Gbleep from China
 - 👀 I’m interested in fintech, traveling and photography
 - 🌱 I’m currently learning CTA strtegy in finance industry
 - 💞️ I’m looking to collaborate on spreading my photo works and gain more attention and traffics on my Instagram
